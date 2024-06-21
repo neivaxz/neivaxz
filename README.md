@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Ella
 - 🌱 I’m currently learning about computing informatics
 - 📫 Contact me through my email ellaiserbn@gmail.com
-- ⚡ Fun fact:
+- Fun fact:
 - 👅I speak a second language
 - 💻 I'm a computer technician
 - 📚 I like reading books in my free time
