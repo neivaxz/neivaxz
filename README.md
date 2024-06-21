@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Ella
 - 👀 I’m interested in learning new languages ​​and the internet
-- 🌱 I’m currently learning computer technology
-- 📫 How to reach me ellaiserbn@gmail.com ...
+- 🌱 I’m currently learning computer and about technology
+- 📫 How to reach me through my email ellaiserbn@gmail.com
 - ⚡ Fun fact:
 - I speak a second language
 - I'm a computer technician
