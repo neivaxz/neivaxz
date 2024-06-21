@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Ella
 - 👀 I’m interested in learning new languages ​​and about the internet
-- 🌱 I’m currently learning computer and about technology
+- 🌱 I’m currently learning about computing informatics
 - 📫 Contact me through my email ellaiserbn@gmail.com
 - ⚡ Fun fact:
 - I speak a second language
