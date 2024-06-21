@@ -3,7 +3,6 @@
 - 📫ellaiserbn@gmail.com
 - Curiosity:
 - 👅I speak a second language
-- 💻 I'm a computer technician
 - 📚 I like reading books in my free time
 - 💪 And I go to the gym
 
