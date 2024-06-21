@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Ella
-- 🌱 I’m currently learning about computing informatics
+- 🌱 I’m IT student
 - 📫ellaiserbn@gmail.com
 - Curiosity:
 - 👅I speak a second language
