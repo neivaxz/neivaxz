@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Ella
 - 🌱 I’m currently learning about computing informatics
--  ellaiserbn@gmail.com
+- 📫ellaiserbn@gmail.com
 - Curiosity:
 - 👅I speak a second language
 - 💻 I'm a computer technician
