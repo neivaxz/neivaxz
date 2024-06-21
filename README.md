@@ -1,4 +1,4 @@
-- 👋 Hi, I’m neiva
+- 👋 Hi, I’m Ella
 - 👀 I’m interested in learning new languages ​​and the internet
 - 🌱 I’m currently learning computer technology
 - 📫 How to reach me ellaiserbn@gmail.com ...
