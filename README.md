@@ -2,10 +2,10 @@
 - 🌱 I’m currently learning about computing informatics
 - 📫 Contact me through my email ellaiserbn@gmail.com
 - ⚡ Fun fact:
-- I speak a second language
-- I'm a computer technician
-- I like reading books in my free time
-- And I go to the gym
+- 👅I speak a second language
+- 💻 I'm a computer technician
+- 📚 I like reading books in my free time
+- 💪 And I go to the gym
 
 <!---
 neivaxz/neivaxz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
